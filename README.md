@@ -10,4 +10,4 @@
 
 本站网罗麻豆原创、欧美精品视频与国产精选内容，每日持续更新。平台支持高清流畅播放，适配多终端访问，致力于为用户打造无广告、纯净且高效的观影体验空间。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh11 ）</span>
